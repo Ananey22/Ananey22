@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ananey!
-- 👀 I’m interested in technology, cars and MCU!
+- 👀 I’m interested in technology, cars, F1 and MCU!
 - 🙋🏻‍♂️ I’m currently in 12th standard!
 
 <!---
